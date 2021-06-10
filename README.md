@@ -1,0 +1,2 @@
+# moderasyon
+çalıntı buda XD
